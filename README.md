@@ -13,6 +13,6 @@
 这些平台通过广告支持运营，确保你不需要额外支出，观看过程中无干扰。同时，它们注重隐私保护，采用HTTPS加密技术，保障个人信息安全。简洁的界面和强大的搜索功能让你轻松找到感兴趣的影片，提供极致的观影体验。
 观看日本AV免费影片，流畅、高清且安全的观看体验尽在这些平台。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/z20250705/z20250705 ）</span>
 
 
